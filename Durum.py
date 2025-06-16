@@ -1,1 +1,1 @@
-Aktif
+KAPALİ
