@@ -1,1 +1,1 @@
-KAPALİ
+KAPALI
